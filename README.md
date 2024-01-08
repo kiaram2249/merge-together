@@ -4,4 +4,4 @@
 
 ### Chocolate cake is the best with a glass of milk!
 
-#### Cookies with milk is good as well!
+#### Cookies with milk is great as well!
